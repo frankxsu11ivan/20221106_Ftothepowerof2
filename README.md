@@ -1,4 +1,4 @@
-# 20221106_Ftothepowerof2
+# 20221106_Ftothepowerof2+G
 #magnanimous adj having or showing a generous and kind nature
 #Hank Mosley Jazz.
 
